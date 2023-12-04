@@ -1,5 +1,5 @@
 # 💫 About Me:
-kitsch.
+i've ive, track 1
 
 
 ## 🌐 Socials:
